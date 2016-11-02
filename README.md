@@ -1,2 +1,4 @@
 # hell-world
-just another repository
+Hi my name is Wessel
+I'm an alocholic
+Nah jk 
